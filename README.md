@@ -1,7 +1,6 @@
 Denunciado: gbzin0154  id: 1417667558357864529
-Imagem
-Descrição
-vendi uma source pra ele e n me pagou, scam de 100reias, dono de server de venda de bloxfruits https://discord.gg/jTvBSKKV4v   "Luck Store" o outro pateta dos print e o dono principal dessa loja de bosta
+
+vendi uma source pra ele e n me pagou, scam de 100reias, dono de server de venda de bloxfruits https://discord.gg/jTvBSKKV4v   "Luck Store" o outro pateta dos print e o dono principal dessa loja de bosta, ficou me enrrolando uns 2 dia e n me pagou, quiser mostro tudo add 9xry
 
 CPF: 141.019.706-96
 Nome: GABRIEL JULIO DE SOUSA RIBEIRO
